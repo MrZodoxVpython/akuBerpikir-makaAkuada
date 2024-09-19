@@ -1,2 +1,2 @@
 # akuBerpikir-makaAkuada
-all your thoughts
+all your thoughts here
